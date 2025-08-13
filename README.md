@@ -1,0 +1,1 @@
+# scandra-privacy-policy
